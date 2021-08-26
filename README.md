@@ -1,2 +1,5 @@
 # KodeCamp
-[![IMAGE ALT TEXT HERE](https://https://j.gifs.com/99DYlJ.gif)]
+
+
+
+[![IMAGE ALT TEXT HERE](https://j.gifs.com/99DYlJ.gif)]
